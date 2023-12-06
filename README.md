@@ -1,3 +1,3 @@
 # orpiada_marlon
 BSIT_2C
-Video Link:https://drive.google.com/file/d/1oxrSWHtfex8i-iAqxESxJLJwkjHze68E/view?usp=sharing
+Video Link:https://youtu.be/BBJa32lCaaY?si=cU5s9abnMvyauETh
